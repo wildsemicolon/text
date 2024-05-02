@@ -4,6 +4,7 @@ relative_links:
   enabled: true
   collections: true
 include:
+  - message.md
   - CONTRIBUTING.md
   - README.md
   - LICENSE.md
