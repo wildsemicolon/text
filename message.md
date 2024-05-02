@@ -1,12 +1,13 @@
-**Assalamu-alaikum Didi.
-**
+Assalamu-alaikum Didi
+
 I am writing this to give a clarity regarding everything and I wanted you to know the whole picture.
-Please d**o not tell Ammi anything abo**ut this. 
-hi
+Please do not tell Ammi anything about this. 
 
-# Its regarding the situation with Shahedah and why things are the way they are.
+Its regarding the situation with Shahedah and why things are the way they are.
 
-# h1 stuff
-sadaskjdas djkas dkasjd kasjd
-dsajkd as
+As you know, Shahedah felt lots of stress and we consulted a psychiatrist and also a psychologist (therapist). She is thus now diagnosed with clincial depression. According to the doctors analysis, she has something called as the [adjustment disorder](https://shatayumulticlinic.com/disease/adjustment-disorder/). This happened due to many changes she faced post our marriage, be it lifestyle changes, stress at work, weather, family conflicts/arguments, habits, day to day lives, language, work culture differences etc., For her many things have changed drastically and while adjusting to it, she has taken a lot of stress.
+
+Anyway, the current situation is that she is recovering. We are doing multiple things to keep her occupied and have a healthy lifestyle. We are both going to join GYMs - we found a women fitness centre and Shahedah likes it. She will join there. To cope with boredom and hopelessness, she is inculcating a few habits like painting again, we bought plants and she is taking care of them, she is trying to make changes to the house as a hobby - you might have seen these, flower pots, decorations in hall and she also put her paintings in our room. All these are mechanisms for her to not feel lost and hopless. Even related to work, she sees her other colleagues are having a better career as they chose clincial and her career does not seem so bright as pathology is very hectic subject and the end product is not so great. Her career might be mediocre. She worries about that too. Also our healths have deteriorated a lot. We had bad eating habits and it resulted in both of our weight gains. That too we are starting to fix by eating healthy and cooking ourselves with as less oil as possible and as nutritous as possible. We are starting many such things for her keep her occupied.
+
+She is still finding it hard to resume work at Osmania. After returning from Mumbai recently, she went to Osmania but is finding it very stressful as her state is not great yet. Recently she has asked for leave again, to get herself better and concentrate on studying ( its 3rd year so there will be a final PG degree exam ) and also maintain the healthy habits to get her mental state better. They have reluctantly accepted it and thus she is studying from home currently and if any exams or need to go then she is going. This does not mean full leave, as once PG exams ends, she anyway has to work again at Osmania for all the days she took leaves. So its just temporary leave for her to get better mentally.
 
