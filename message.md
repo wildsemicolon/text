@@ -1,5 +1,5 @@
-Assalamu-alaikum Didi.
-
+**Assalamu-alaikum Didi.
+**
 I am writing this to give a clarity regarding everything and I wanted you to know the whole picture.
 Please do not tell Ammi anything about this. 
 
