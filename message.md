@@ -47,6 +47,8 @@ Currently, with all this. Please do not get me wrong. I had to tell you all this
 
 This does not mean you should not come. I wish I could explain more clearly but this is what I have right now.
 
+**I will explain more clearly when possible. Currently it's hard to privately talk to you. Hopefully you do not misunderstand me. I have utmost love and care for you and kids and Jeeju. I would never harm our relationship like Ammi is fearing of. But I have to tell you all this - now or at some point. so telling now.**
+
 Ab bhi, you should come but she expects you like I mentioned before.
 
 I feel helpless here and thats why I have told you the whole story.
